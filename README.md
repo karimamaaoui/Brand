@@ -6,8 +6,6 @@
 ![brand - Copie-15](https://github.com/karimamaaoui/Brand/assets/67017326/d6e4b60b-3da5-499c-8da5-f9596345296d)
 ![brand - Copie-14](https://github.com/karimamaaoui/Brand/assets/67017326/ff829e88-9c06-45f6-8983-cb0740c6143a)
 ![brand - Copie-13](https://github.com/karimamaaoui/Brand/assets/67017326/8ee366a9-4e2c-4687-b115-10d45bf3057d)
-![brand - Copie-12](https://github.com/karimamaaoui/Brand/assets/67017326/65f9de4b-6f80-479c-9f69-5234cdc66610)
-![brand - Copie-11](https://github.com/karimamaaoui/Brand/assets/67017326/2c52aa33-95f3-4a2c-a945-c08555bca57c)
 ![brand - Copie-10](https://github.com/karimamaaoui/Brand/assets/67017326/50cb8a18-e231-4a6b-8d58-58cb87720d0b)
 ![brand - Copie-09](https://github.com/karimamaaoui/Brand/assets/67017326/d0368761-7ad7-46e7-9786-105391b8bdbf)
 ![brand - Copie-08](https://github.com/karimamaaoui/Brand/assets/67017326/115179d9-3169-4e4a-8202-5650e9ec3c31)
