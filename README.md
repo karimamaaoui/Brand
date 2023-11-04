@@ -12,6 +12,5 @@
 ![brand - Copie-07](https://github.com/karimamaaoui/Brand/assets/67017326/723e04fb-e6ed-4f69-b968-b2dc771c546b)
 ![brand - Copie-06](https://github.com/karimamaaoui/Brand/assets/67017326/1d327661-f9c8-4fbc-825b-cea0b20e2070)
 ![brand - Copie-05](https://github.com/karimamaaoui/Brand/assets/67017326/ced7fb63-52bb-468f-a0dc-a0b3f69c36ef)
-![brand - Copie-04](https://github.com/karimamaaoui/Brand/assets/67017326/ac42f1e4-1dea-47b1-9104-d76690d7bbed)
 ![brand - Copie-03](https://github.com/karimamaaoui/Brand/assets/67017326/1a8001da-feef-4589-8da8-68e8c8b2f05c)
 ![brand - Copie-02](https://github.com/karimamaaoui/Brand/assets/67017326/6a1ac4c9-2158-4517-bd63-e9fa84cd6b31)
